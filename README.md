@@ -5,5 +5,5 @@
 
 • 👀 I’m interested in ... A lot of the emerging tech
 
-• 🌱 I’m currently learning ... Information Management
+• 🌱 I’m currently persueing ... Information Management
 
