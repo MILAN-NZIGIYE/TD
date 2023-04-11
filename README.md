@@ -3,8 +3,7 @@
 ![](https://i.imgur.com/waxVImv.png)
 
 
-• 👀 I’m interested in ... Deep Computer Science stuff
+• 👀 I’m interested in ... A lot of the emerging tech
 
-• 🌱 I’m currently learning ... BSc. Software Engineering
+• 🌱 I’m currently learning ... Information Management
 
-• Check My Website: https://pattusdev.github.io/cv/
